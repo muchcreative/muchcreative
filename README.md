@@ -1,2 +1,2 @@
 ### Top UI/UX Trends to Try in 2023/2024:
-![top_ux_ui_trends_2023_2024](https://github.com/muchcreative/muchcreative/assets/59669876/aa1da084-94cb-426d-8beb-8b6f93a1d926)
+![top_ui_ux_trends_2023_2024](https://github.com/muchcreative/muchcreative/assets/59669876/d24e4b58-2cf0-437b-b2d5-0731bc1a2d34)
